@@ -1,1 +1,0 @@
-# worldcleverrankings.github.io
